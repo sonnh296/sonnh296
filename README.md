@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning cloud, network, programming and languages
   
 - 📫 How to reach me
-[https://www.linkedin.com/in/sonnh29/]
-[https://www.facebook.com/ji.nguyenhong]
+[linkin](https://www.linkedin.com/in/sonnh29/)
+[facebook](https://www.facebook.com/ji.nguyenhong)
