@@ -4,4 +4,3 @@
   
 - 📫 How to reach me
 [linkin](https://www.linkedin.com/in/sonnh29/)
-[facebook](https://www.facebook.com/ji.nguyenhong)
